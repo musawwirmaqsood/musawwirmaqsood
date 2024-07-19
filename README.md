@@ -4,4 +4,3 @@
 - [Email](musawwir58@gmail.com)
 - [LinkedIn Profile](https://www.linkedin.com/in/musawwir-maqsood/)
 - [YouTube](https://www.youtube.com/@musawwirmaqsood)
-- [WhatsApp](+923055321314)
